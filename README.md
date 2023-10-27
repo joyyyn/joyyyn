@@ -34,7 +34,7 @@ I've grown in setting better boundaries.
 
 ## :blue_heart: I love
 I'm a professional hobby-haver, I love taking a class and learning new skills!
-I also love cats, cracking jokes and spemdomg time with my dawgs, being in nature, tending to our garden, hanging with my sibling's kids, watching anime, playing video games, dancing,
+I also love cats, cracking jokes and spending time with my dawgs, being in nature, tending to our garden, hanging with my sibling's kids, watching anime, playing video games, dancing,
 astrology (I'm a Libra sun, Sagittarius moon and rising - what's your big 3?), competitive board game nights, reality competition shows, karaoke and sharing meals with people I love
 
 ## :no_entry: I don't love 
